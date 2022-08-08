@@ -15,6 +15,7 @@
 - 1 xicara (chá) de óleo
 - 2 xicaras de açucar (chá)
 - 1 colher de fermento em pó
+- Colher de café
 
 
 
