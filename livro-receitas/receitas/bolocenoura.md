@@ -18,4 +18,3 @@
 
 
 
-A Bruna é **lindaaaaa**
